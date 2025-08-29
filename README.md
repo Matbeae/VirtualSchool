@@ -1,3 +1,3 @@
-Презентация проекта: [VirtualSchool презентация.pptx](https://github.com/user-attachments/files/22051450/VirtualSchool.pp
+Презентация проекта: https://disk.yandex.ru/d/KHAa51neYCMiTw
 
 Демо видео: https://disk.yandex.ru/i/xPsBlblq-D9quw
